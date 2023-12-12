@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @screen1208, just call me screen!
+- 👀 I’m interested in anything, as long as it is not boring
+- 📫 How to reach me: Discord-@screen2
